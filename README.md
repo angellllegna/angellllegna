@@ -10,6 +10,7 @@
   
   
   📁 This is my **Linkedin** profile 	👉  **https://www.linkedin.com/in/nattarinee1802**
+  
   📧 This is my **Email**             👉  **rinee1802@gmail.com**
 <!--
 **angellllegna/angellllegna** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
