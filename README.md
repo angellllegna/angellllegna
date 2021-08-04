@@ -1,6 +1,7 @@
 -The key before success is to start before you are ready-
+|--|--| |hi|there|
 
-👋👋👋 |Hi| my name is Nattarinee Sawalaksana 😄,
+👋👋👋  my name is Nattarinee Sawalaksana 😄,
   
   my nickname is Angel👼.
 
