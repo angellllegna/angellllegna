@@ -6,7 +6,7 @@
 
   🎒 I'm a **Junior** student at Faculty of Information Technology💻, King Mongkut's Institute of Technology Ladkrabang.
 
-  ♥️♥️♥️ Now I’m currently learning and interesting about **DevOps**. ♥️♥️♥️
+  ♥️♥️♥️ Now I’m currently learning and interesting about **Front-end Developer**. ♥️♥️♥️
   
   
   📁 This is my **Linkedin** profile 	👉  **https://www.linkedin.com/in/nattarinee1802**
